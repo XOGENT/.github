@@ -76,7 +76,7 @@ We don't just secure your systems — we ensure your business stays compliant wi
 
 We're IT professionals who believe that sharing what we learn is the best way to help everyone be more secure.
 
-📍 **1201 Peachtree Street, 400 Colony Square, Suite 200 — Atlanta, GA 30361**
+📍 **PO BOX 2861, Suwanee, GA 30024**
 
 📞 **(678) 208-8866** &nbsp;|&nbsp; 🛟 Support: **(678) 546-0018** &nbsp;|&nbsp; 📧 **info@xogent.com**
 
